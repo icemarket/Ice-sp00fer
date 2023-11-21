@@ -4,6 +4,9 @@ This is our new released spoofer thats working good. Now we give all the wonderf
 Download link for the spoofer https://easyupload.io/8vn53h
 You find information for the setup in the download
 
+Website soon.... discord real soon....
+
+
 EAC/BE Spoofer
 ✔️ TEMPORARY SPOOFER ✔️ BYPASS VPN KICK / BANS ✔️ FREE CLEANER INCLUDED ✔️ NO REINSTALL NEEDED ✔️ NO VPN NEEDED
 
